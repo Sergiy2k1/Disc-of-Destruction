@@ -1,2 +1,2 @@
 # Disc-of-Destruction
-[https://www.youtube.com/shorts/Iu8eTPwKkb4](https://github.com/IvanMudrak159/TZ_24Play-17.07/assets/120639693/ae6e4e97-96c0-4b56-abcb-cf51cee8c98f)https://github.com/IvanMudrak159/TZ_24Play-17.07/assets/120639693/ae6e4e97-96c0-4b56-abcb-cf51cee8c98f
+https://github-production-user-asset-6210df.s3.amazonaws.com/120639693/255681015-c000cf23-fcf6-4581-8ded-fcca9bfe002c.mp4
